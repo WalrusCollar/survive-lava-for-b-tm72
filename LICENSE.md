@@ -1,4 +1,4 @@
-
+survive lava for brainrots Script exclusive is the best survive lava for brainrots Script, featuring anti-ban and teleport. Safe and powerful for all
 
 
 
